@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Hafiz Zeeshan Ahmad
+- 👋 Hi, I’m Zeeshan Ahmad
 - 👀 I’m interested only in myself
 - 🌱 I’m currently learning digital marketing
 - 💞️ I’m Muslim ***ALHUMDULILLAH***
